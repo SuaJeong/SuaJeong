@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+2026-09-21
+캡스톤 디자인 수업 2회
+
+ㅗㅠ오ㅠ오
+츌츄
